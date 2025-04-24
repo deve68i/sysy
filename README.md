@@ -59,7 +59,7 @@ telegram客服:@Diauid
 
 演示群组:@bot68i
 
-演示后台:https://bot.session.dpdns.org/wocaole.php 用户名:admin 密码:Qwe12345.
+演示后台找客服拿
 
 客服:https://t.me/Diauid
 
